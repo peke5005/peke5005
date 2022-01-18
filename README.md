@@ -4,7 +4,7 @@
 - 🏅 Winner of Homophobia awards: 2018,2019,2021.
 - 🟩 Professional LCube coder since 2001
 - 💯 Working on 2022 racism and homophobia awards
-- ⚡ Fastest time beating a gay person in 2018
+- ⚡ Fastest time beating a gay person in 2018 <br>
 https://discord.gg/934vAw6g46
 https://github.com/peke5005
 
