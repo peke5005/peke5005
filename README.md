@@ -5,8 +5,6 @@
 - 🟩 Professional LCube coder since 2001
 - 💯 Working on 2022 racism and homophobia awards
 - ⚡ Fastest time beating a gay person in 2018
+https://discord.gg/934vAw6g46
+https://github.com/peke5005
 
-### Discord:
-
-[<img align="left" alt="discord.com" width="22px" src="https://discord.gg/934vAw6g46" />][discord.com]
-[<img align="left" alt="github.com | Github" width="22px" src="https://github.com/peke5005" />][github.com]
