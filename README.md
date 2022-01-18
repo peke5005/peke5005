@@ -5,14 +5,14 @@
 - 🟩 Professional LCube coder since 2001
 - 💯 Working on 2022 racism and homophobia awards
 - ⚡ Fastest time beating a gay person in 2018 <br>
-https://discord.gg/934vAw6g46
-https://github.com/peke5005
+🟩 https://discord.gg/934vAw6g46 🟩
+🟩 https://github.com/peke5005 🟩
 <br>
 <p align = "center">
   <img src = "https://github-readme-stats.vercel.app/api?username=peke5005&show_icons=true&theme=bear" width = 400>
   <img src = "https://github-readme-streak-stats.herokuapp.com?user=peke5005&theme=dark&hide_border=true" width = 400>
 </p>
-<h1 align="center">LCube my love</h1>
+<h1 align="center">🟩 LCube my love 🟩</h1>
 
 <div style="display: inline_block"><br>
  <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
