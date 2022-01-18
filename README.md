@@ -13,6 +13,6 @@ https://github.com/peke5005
   <img src = "https://github-readme-streak-stats.herokuapp.com?user=peke5005&theme=dark&hide_border=true" width = 400>
 </p>
 <div style="display: inline_block"><br>
- <img align="center" alt="peke5005-LCube" height="45" width="50" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
- <img align="center" alt="peke5005-LCube1" height="45" width="50" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
+ <img align="center" alt="peke5005-LCube" height="50" width="50" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
+ <img align="center" alt="peke5005-LCube1" height="50" width="50" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
 </div>
