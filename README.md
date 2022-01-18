@@ -10,4 +10,3 @@
 
 [<img align="left" alt="discord.com" width="22px" src="https://discord.gg/934vAw6g46" />][website]
 [<img align="left" alt="github.com | Github" width="22px" src="https://github.com/peke5005" />][youtube]
-![Readme Card](https://github-readme-stats.vercel.app/api/pin/?username=peke5005&repo=github-readme-stats)](https://github.com/anuraghazra/github-readme-stats)
