@@ -6,7 +6,7 @@
 - 💯 Working on 2022 racism and homophobia awards
 - ⚡ Fastest time beating a gay person in 2018 <br>
 🟩 https://discord.gg/934vAw6g46 🟩
-🟩 https://github.com/peke5005 🟩
+ https://github.com/peke5005 🟩
 <br>
 <p align = "center">
   <img src = "https://github-readme-stats.vercel.app/api?username=peke5005&show_icons=true&theme=bear" width = 400>
