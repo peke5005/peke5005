@@ -4,7 +4,7 @@
 - 🏅 Winner of Homophobia awards: 2018,2019,2021.
 - 🟩 Professional LCube coder since 2001
 - 💯 Working on 2022 racism and homophobia awards
-- ⚡ Fastest time beating a gay person in 2018 <br>
+- ⚡ Fastest time beating up a gay person in 2018 <br>
 🟩 https://discord.gg/934vAw6g46 🟩
  https://github.com/peke5005 🟩
 <br>
@@ -17,24 +17,24 @@
 <div style="display: inline_block"><br>
  <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube3" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932811471606394970/image_2.png" />
   <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube3" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932811471606394970/image_2.png" />
   <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube3" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932811471606394970/image_2.png" />
   <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube3" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932811471606394970/image_2.png" />
   <img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
  <img align="center" alt="peke5005-LCube1" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930344067072/RiGEEMjxT_2.png" />
-
+<img align="center" alt="peke5005-LCube" height="40" width="35" src="https://cdn.discordapp.com/attachments/932810753084375060/932810930180460634/image_3.png" />
 
 </div>
