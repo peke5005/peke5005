@@ -1,9 +1,8 @@
 <h1 align="center">Hi 👋, I'm peke!</h1>
 
-- 🏆 Winner of Racism awards: 2012,2013,2015,2016,2019,2020,2021.
-- 🏅 Winner of Homophobia awards: 2018,2019,2021.
+- 🏆 Winner of Racism awards: 2016,2019,2020,2021,2022.
+- 🏅 Winner of Homophobia awards: 2018,2019,2021,2022.
 - 🟩 Professional LCube coder since 2001
-- 💯 Working on 2022 racism and homophobia awards
 - ⚡ Fastest time beating up a faggot in 2018 - 2019 <br>
 
  https://github.com/peke5005 🟩
